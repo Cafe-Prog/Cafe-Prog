@@ -1,4 +1,4 @@
 - 👋 Hi Dear, This is Mehrtash Darabi
 - 👀 I’m Front-End Developer
 - 🌱 Freelance : Available
-- 📫 Please follow and subscribe to my Instagram page, Youtube Page => @cafeprog
+- 📫 Please follow and subscribe to my Instagram page, Youtube Channel => @cafeprog
